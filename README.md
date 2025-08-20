@@ -6,10 +6,6 @@
 
 J. Sairaj
 
-N. Deepak
-
-Ratna Keshav
-
 🏫 Institution:
 
 Geethanjali College of Engineering and Technology
